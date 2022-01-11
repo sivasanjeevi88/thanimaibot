@@ -30,7 +30,7 @@
 - MASHAROBOT
 
 ### ✪ Owners
-- [🔥 TheTelegrampro🔥](https://t.me/TheTelegrampro) » [GitHub](https://github.com/proTamizhan) (Bot Founder)
+- [🔥 Siva the boss](https://t.me/Sivatheboss) » [GitHub](https://github.com/proTamizhan) (Bot Founder)
 
 
   <h1>
